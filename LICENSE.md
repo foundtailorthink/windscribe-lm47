@@ -1,10 +1,10 @@
-Best Windscribe Extension | split tunneling + dedicated IP is the best Windscribe extension with split tunneling and dedicated IP. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/windscribe-lm47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 

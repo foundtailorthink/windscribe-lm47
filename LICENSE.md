@@ -1,4 +1,4 @@
-
+Best Windscribe Extension | split tunneling + dedicated IP is the best Windscribe extension with split tunneling and dedicated IP. Secure and optimized.
 
 
 

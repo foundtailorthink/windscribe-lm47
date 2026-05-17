@@ -1,10 +1,10 @@
-Melhor Windscribe Extensão | túnel dividido + IP dedicado é o melhor Windscribe extensão com túnel dividido e IP dedicado. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/windscribe-lm47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 

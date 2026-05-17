@@ -1,10 +1,10 @@
-الأفضل Windscribe امتداد | النفق المنفصل + IP مخصص هو أفضل Windscribe امتداد مع النفق المنفصل و IP مخصص. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/windscribe-lm47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
